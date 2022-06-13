@@ -1,0 +1,2 @@
+# penemuan-tertawa
+Tetap smile
